@@ -1,1 +1,0 @@
-# SinxRofozoteron.github.io
